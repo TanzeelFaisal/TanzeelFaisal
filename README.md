@@ -14,7 +14,6 @@
 
 - 📫 How to reach me:
     Email: tanzeelfaisal@outlook.com
-    LinkedIn: [linkedin.com/in/muhammad-tanzeel-faisal](https://www.linkedin.com/in/muhammad-tanzeel-faisal)
 
 - 😄 Pronouns: he/him
 
